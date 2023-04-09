@@ -1,0 +1,1 @@
+// deneme bak kanka control s yaptım 
